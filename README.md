@@ -26,7 +26,7 @@ management. Achieved a 20% increase in stock turnover and a 15% reduction in lea
 
 
 🎓 Education
-Arizona State University, Colorado, USA  
+Arizona State University, Arizona, USA  
 > ○ Master of Science, Business Analytics
 
 National Institute of Fashion Technology, India  
